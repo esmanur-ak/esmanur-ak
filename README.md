@@ -19,4 +19,4 @@
 ---
 
 📬 **İletişim:** 
-- [LinkedIn](https://linkedin.com/in/esmanur-ak)
+- [LinkedIn]www.linkedin.com/in/esmanur-ak-b867a4385
